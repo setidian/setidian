@@ -2,7 +2,7 @@
 - 👀 I’m interested in "robotic , security , programming and reading or writing"
 - 🌱 I’m currently learning "programming with Python and MCSA"
 - 💞️ I’m looking to collaborate on nobody...
-- 📫 How to reach me setisetidian@gmail.com/setisetidian@yahoo.com
+- 📫 How to reach me setisetidian@gmail.com
 
 I'm the GOD of Terrestria :}
 
